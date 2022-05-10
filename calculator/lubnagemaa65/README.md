@@ -1,0 +1,1 @@
+I'm a Software Mobile Developer ( Android Native & Flutter ) with Kotlin, Java and Dart And I'm a Graduate of Computer Science Cairo Universit and Since 2019 I have been working on a variety of projects and I have a great ambition to continue developing my skills and aspire to work in a collaborative environment
